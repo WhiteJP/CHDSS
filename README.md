@@ -1,5 +1,5 @@
 # CHDSS
-Compleks uman Dayda Summer Skewl
+Compleks uman Dayda Summa Skewl
 
 ##CHANGE MC CHANGE CHANGE
 
